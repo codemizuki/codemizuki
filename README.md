@@ -1,5 +1,5 @@
 # Yahoo!~ I'm CodeMizuki!
-<br>Here we're leveling up tech with a dash of kawaii-coquette vibes<br>I love breaking the code — coding, programming, AI, and data analysis, but with a kawaii-coquette twist!<br>My vibe? Making tech cute and fun!<br><br>🌟 Epic coding tutorials and hacks<br>🌸 Pink-themed projects and super cute code snippets
+Here we're leveling up tech with a dash of kawaii-coquette vibes<br>I love breaking the code — coding, programming, AI, and data analysis, but with a kawaii-coquette twist!<br>My vibe? Making tech cute and fun!<br><br>🌟 Epic coding tutorials and hacks<br>🌸 Pink-themed projects and super cute code snippets
 
 
 ## 🌐 Socials:
